@@ -10,3 +10,6 @@ https://www.almanac.com/gardening/planting-calendar/zipcode/93561
 
 ### Greenstalk verticle planters
 https://greenstalkgarden.com/
+
+Johnnys seeds
+https://www.johnnyseeds.com/vegetables/
